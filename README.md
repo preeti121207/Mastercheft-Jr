@@ -1,2 +1,2 @@
 ## Carrot Cake 
-Recipe by Preeti
+Delicious Carrot Cake Recipe
